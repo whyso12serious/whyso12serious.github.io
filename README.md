@@ -1,1 +1,0 @@
-# whyso12serious.github.io
